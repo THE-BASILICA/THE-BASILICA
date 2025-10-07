@@ -1,5 +1,5 @@
 
-<img align="right" width="450" height="450" alt="Untitled383_20251007172142" src="https://github.com/user-attachments/assets/22f5d708-22e2-4851-9588-78bc6318919b">
+<img align="right" width="500" height="500" alt="Untitled383_20251007172142" src="https://github.com/user-attachments/assets/22f5d708-22e2-4851-9588-78bc6318919b">
 <p>
   <img src="https://komarev.com/ghpvc/?username=THEBASILICA-username&color=8FBC8F&style=square&label=++⌒+˙+VANDALISERS+++━+&abreviated=true">
   
