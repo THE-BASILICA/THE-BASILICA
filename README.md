@@ -23,7 +23,7 @@
   
   <details>
         <summary>━ DNI  ᛝ 𐙚</summary>
-      ︶ We hate Endo systems. We do NOT care what terms you made up for yourselves, DO NOT try to engage in a conversation with us.
+      ︶ We hate Endo systems. We do NOT care what terms you made up for yourselves, DO NOT try to engage in a conversation with us. If you are FRIENDS with an endo, iwec because we can be judgemental.
 
 ︶ White supremacists, "*Charlie Kirk didn't deserve to die like that*", TERFs, Ableists, Transphobes, Religious people, religion discourse.
 
