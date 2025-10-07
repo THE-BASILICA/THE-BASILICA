@@ -30,4 +30,14 @@
 ︶ Melodramatic/sensitive people, you support problematic people, you're a tcc (iwec if non-romanticiser), political discourse (exceptions: friends).
 </details>
 ︵︵　︵︵　︵︵　　
+  <details>
+        <summary>━ SAFES  ᛝ 𐙚</summary>
+    ︶ <a href="https://github.com/AZURETlME">AZURETIME</a>  
+    <a href="https://github.com/Michael-Afton1983">JUDAS</a>  
+    <a href="https://github.com/bylercoded">MIMI</a>  
+    <a href="https://github.com/gambling-addict">RYKER</a>  
+    <a href="https://github.com/Servwant">DENI</a>  
+    <a href="https://github.com/RoyalTemptation">LUCANE</a>  
+    <a href="https://github.com/doubl2t">DOBIL</a>
+    </details>
 </p>
