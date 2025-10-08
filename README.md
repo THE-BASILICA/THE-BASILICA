@@ -28,6 +28,10 @@
 ︶ White supremacists, "*Charlie Kirk didn't deserve to die like that*", TERFs, Ableists, Transphobes, Religious people, religion discourse.
 
 ︶ Melodramatic/sensitive people, you support problematic people, you're a tcc (iwec if non-romanticiser), political discourse (exceptions: friends).
+
+︶ We don't tolerate racism of any kind. You make a "troll skin" or make a "dark humor" joke, we don't care. Not a topic of joke, ok?
+
+︶ And dni if your gonna be a freak. (you have a list of copy pastes that are inappropriate, you say inappropriate things, etc.)
 </details>
 ︵︵　︵︵　︵︵　　
   <details>
