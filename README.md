@@ -38,6 +38,7 @@
     <a href="https://github.com/gambling-addict">RYKER</a>  
     <a href="https://github.com/Servwant">DENI</a>  
     <a href="https://github.com/RoyalTemptation">LUCANE</a>  
-    <a href="https://github.com/doubl2t">DOBIL</a>
+    <a href="https://github.com/doubl2t">DOBIL</a>  
+    <a href="https://github.com/Idontknowwhyibite">IMPULSIVENESS</a>
     </details>
 </p>
