@@ -5,7 +5,8 @@
 
 <p align="center"><img width="737" height="699" alt="Untitled394_20251017195115" src="https://github.com/user-attachments/assets/4d00877c-c42b-4327-9847-09bab2c0bf46">
   </p>
-  <img src="https://komarev.com/ghpvc/?username=THEBASILICA-username&color=111111&style=square&label=THE+AMOUNT+OF+YA+FRIGGIN'+DIMWITS+&abreviated=true"><p align="center">
+                  <img src="https://komarev.com/ghpvc/?username=THEBASILICA-username&color=111111&style=square&label=THE+AMOUNT+OF+YA+FRIGGIN'+DIMWITS+&abreviated=true">
+<p align="center">
       <a href=https://pronouns.cc/@BASILICA>
     <img width="616" height="414" alt="Untitled398_20251017203141" src="https://github.com/user-attachments/assets/f780d7bf-77ab-419e-b15d-801f912a79d3" />
   </p>
