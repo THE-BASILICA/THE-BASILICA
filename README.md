@@ -1,3 +1,8 @@
+<div align="center">
+  
+## ${\textsf{\color{#d2b48c}          READ FAST, CHUCKLENUTS!!!}}$
+</div>
+
 <p align="center"><img width="737" height="699" alt="Untitled394_20251017195115" src="https://github.com/user-attachments/assets/4d00877c-c42b-4327-9847-09bab2c0bf46">
   </p>
   <img src="https://komarev.com/ghpvc/?username=THEBASILICA-username&color=111111&style=square&label=THE+AMOUNT+OF+YA+FRIGGIN'+DIMWITS+&abreviated=true"><p align="center">
@@ -20,7 +25,11 @@
     ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
     ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
     ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<div align="center">
+  
+## ${\textsf{\color{#5D2F77}  }}$
+  </div>
  <p align="center">
   <img width="1000" height="616" alt="Untitled396_20251017194728" src="https://github.com/user-attachments/assets/b5c32723-7554-4bd3-a667-42a0611d1d34" />
  </p>
