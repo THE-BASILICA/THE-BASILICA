@@ -8,13 +8,13 @@
       <a href=https://rentry.co/BASILIA>
 <img align="left" width="313" height="212" alt="Untitled398_20251017202137" src="https://github.com/user-attachments/assets/e0a7a92b-7d91-4c4b-8753-15af53212cf7" />
   </a>
-    <a href=https://r7.whiteboardfox.com/gallery/@ROSS0CADERE>
-<img align="right" width="313" height="212" alt="Untitled398_20251017200753" src="https://github.com/user-attachments/assets/6bab6e95-8c88-4ae5-928c-022a84ab6e5c" />
-    </a>
-    <p align="center"
+        <p align="center"
  <a href="scout-tf2-scout"><img width="195" height="180" src="https://github.com/user-attachments/assets/26326690-994d-4d1e-83df-290666bcd4f7"/>
     </p>
  </a>
+    <a href=https://r7.whiteboardfox.com/gallery/@ROSS0CADERE>
+<img align="right" width="313" height="212" alt="Untitled398_20251017200753" src="https://github.com/user-attachments/assets/6bab6e95-8c88-4ae5-928c-022a84ab6e5c" />
+    </a>
  ㅤㅤㅤㅤㅤㅤㅤ
     ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
     ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
