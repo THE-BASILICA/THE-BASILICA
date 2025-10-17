@@ -10,8 +10,7 @@
   </a>
  <a href="scout-tf2-scout"><img width="175" height="160" src="https://github.com/user-attachments/assets/26326690-994d-4d1e-83df-290666bcd4f7"/>
  </a>
- ㅤㅤㅤㅤㅤㅤㅤ
-    <a href=https://r7.whiteboardfox.com/gallery/@ROSS0CADERE>
+<a href=https://r7.whiteboardfox.com/gallery/@ROSS0CADERE>
 <img align="right" width="313" height="212" alt="Untitled398_20251017200753" src="https://github.com/user-attachments/assets/6bab6e95-8c88-4ae5-928c-022a84ab6e5c" />
     </a>
  ㅤㅤㅤㅤㅤㅤㅤ
